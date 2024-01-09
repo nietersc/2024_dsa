@@ -18,4 +18,4 @@ If you have any questions or issues, please contact me by email (**lmbastos@uga.
 Thanks, and happy coding!  
 
 
-![](https://www.pexels.com/photo/smartphone-acer-jade-s-in-the-hands-of-a-man-on-a-background-of-yellow-flowers-6465/). 
+![](https://images.pexels.com/photos/6465/man-field-smartphone-yellow.jpg). 
